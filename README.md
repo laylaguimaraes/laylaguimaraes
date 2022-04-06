@@ -1,4 +1,4 @@
-## Ei! Sou a @laylaguimaraes e trabalho com Comunicação em Talent Acquisition no PicPay 💚
+## Ei! Sou a Lay e trabalho com Comunicação em Talent Acquisition no PicPay 💚
 
 - 🤗 Gosto de me conectar e ajudar pessoas! e uma das coisas que mais valorizo é quando um trabalho bem feito impacta a vida de alguém positivamente.
 - 👯 Estou aqui para ajudar o meu time a encontrar pessoas incríveis e que queiram fazer parte da empresa de tecnologia que transforma o jeito como os brasileiros lidam com o dinheiro.
